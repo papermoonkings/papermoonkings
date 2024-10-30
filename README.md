@@ -1,1 +1,2 @@
-![tsugui](https://github.com/papermoonkings/papermoonkings/blob/main/hes%20coming%20in.png)
+
+![fruits](https://github.com/papermoonkings/papermoonkings/blob/main/fruits.png)
